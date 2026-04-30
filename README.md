@@ -12,7 +12,8 @@
 🎀 AI/ML Enthusiast<br/>
 💟 Active writer on **Medium** sharing about tech & life<br/>
 🌷 I love to learn about new things!<br/>
-👀 Stay connected with me!
+👀 Stay connected with me!<br/>
+🦄 Creative Logic Minded ahh brain~
 
 
 ## Socials:
