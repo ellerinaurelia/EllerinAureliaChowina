@@ -8,12 +8,12 @@
 
 ## A Lil' about me!
 
-🧠 Computer science student at Universitas Prima Indonesia<br/>
+🧠 CompSci student at Universitas Prima Indonesia<br/>
 🎀 AI/ML Enthusiast<br/>
-💟 Active writer on **Medium** sharing about tech & life<br/>
+💟 Active writer on **Medium**<br/>
 🌷 I love to learn about new things!<br/>
-👀 Stay connected with me!<br/>
-🦄 Creative Logic Minded ahh brain~
+👀 Stay connected with Me!<br/>
+🦄 Creative logic minded ahh brain~
 
 
 ## Socials:
